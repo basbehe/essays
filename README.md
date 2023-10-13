@@ -15,7 +15,7 @@ An oddity of this series, from which it derives its name, is that Imhotep and An
 ## Bear With Me Here: Abbott & Costello
 **Includes: *Abbott and Costello Meet the Mummy (1955)***
 
-Again, bafflingly, the names have been changed once again to Klaris and Ara.
+Again, bafflingly, the names have been changed once again to "Klaris" and "Ara."
 
 This film has the unique phenomenon of existing as part of its own, separate Universal canon. The duo also met ==Frankenstein=={Q306791}, ==the Invisible Man=={Q759335}, ==Dr. Jekyll and Mr. Hyde=={Q1121579}, and ==the Killer=={Q2648461} before their retirement from films.
 
