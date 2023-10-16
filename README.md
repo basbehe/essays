@@ -9,7 +9,7 @@ The semi-recent flop of Universal's *The Mummy (2017)*, which killed the planned
 
 Here lies the beginnings of all our problems. Boris Karloff stars at the titular mummy, Imhotep, seeking to resurrect his fallen lover Ankh-su-namun. The film established numerous conventions that appear throughout the franchise: there is a love story broken by death, a person defying it for the sake of love, and a woman with some biological connection that makes them a proxy for the deceased woman. It also contains the villification of cats, a far cry from their role in the later reboot.
 
-## Yes, There Were Sequels: Kharis Continuity
+## Arthur Conan Doyle's Fault: Kharis Continuity
 **Includes: *The Mummy’s Hand (1940), The Mummy’s Tomb (1942), The Mummy’s Ghost (1944), The Mummy’s Curse (1944)***
 
 These films come from the era of universal rapidly cranking out sequels, making it strangely the longest-running mainline *The Mummy* series yet. The first film is a reboot of the original, while the following take place in America an increasing number of years after the first. An oddity of this series, from which it derives its name, is that Imhotep and Ankh-su-namun have been renamed "Kharis" and "Ananka" respectively. It also introduces the idea of "tana leaves" as an animating force for the mummy rather than the Book of the Dead.
