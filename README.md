@@ -1,6 +1,7 @@
 # Into the Mummyverse, or There Are Sixteen Of These Things And None Of Them Are Good
 
-The semi-recent flop of Universal's *The Mummy (2017)*, which killed the planned "Dark Universe" of interconnected classic horror reboots before it could even begin, brought the
+The semi-recent flop of Universal's *The Mummy (2017)*, which killed the planned "Dark Universe" of interconnected classic horror reboots before it could even begin, brought the 1999 version to the minds of many. At the beginning of this year, I decided, on a whim, to watch through all three of these reboot movies, and then set it in my head to watch every single film in the Mummy franchise before capping it off with 2017. What I did not realize until I began, however, was that there were many more films than it first appeared. Over a dozen, in fact. Since I was living on my own at the time and needed something to do to keep myself sane, I perservered. Now it is my albatross to share with the world. I have sorted the films into their continuities, as I have analyzed them, and will present them thus.
+
 .ve-media wc:The_Mummy_(1932_poster-three-sheet).jpg right caption="A poster for the original 1932 *The Mummy* film"
 
 ## Where it All Begins: Prime Universe
