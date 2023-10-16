@@ -1,16 +1,16 @@
 # Into the Mummyverse, or There Are Sixteen Of These Things And None Of Them Are Good
 
-The semi-recent flop of Universal's *The Mummy (2017)*, which killed the planned "Dark Universe" of interconnected classic horror reboots before it could even begin,
+The semi-recent flop of Universal's *The Mummy (2017)*, which killed the planned "Dark Universe" of interconnected classic horror reboots before it could even begin, brought the
 
 ## Where it All Begins: Prime Universe
 
 **Includes: *The Mummy (1932)***
+Here lies the beginnings of all our problems. Boris Karloff stars at the titulat mummy, Imhotep
 
 ## Yes, There Were Sequels: Kharis Continuity
 **Includes: *The Mummy’s Hand (1940), The Mummy’s Tomb (1942), The Mummy’s Ghost (1944), The Mummy’s Curse (1944)***
 
-
-An oddity of this series, from which it derives its name, is that Imhotep and Ankh-su-namun have been renamed "Kharis" and "Ananke" respectively.
+These films come from the era of universal rapidly cranking out An oddity of this series, from which it derives its name, is that Imhotep and Ankh-su-namun have been renamed "Kharis" and "Ananke" respectively. It also introduces the idea of "tanna leaves" as an animating
 
 ## Bear With Me Here: Abbott & Costello
 **Includes: *Abbott and Costello Meet the Mummy (1955)***
@@ -26,13 +26,11 @@ This film has the unique phenomenon of existing as part of its own, separate Uni
 While the timeline grows increasingly erratic throughout the Scorpion King films, I still choose to place them in the same universe unless proven otherwise. However, for the sake of neatness, this section will be divided between the two sets of films.
 
 __The Mummy Reboot__
-This series is, most likely, what the average millenial or Gen-Z thinks of when they hear "the Mummy."
-
+This series is, most likely, what the average millenial or Gen-Z thinks of when they hear "the Mummy." Here, we see the return of the names Imhotep and Ankh-su-namun, 
 In recent years, *The Mummy (1999)* has garnered a reputation as a "bisexual icon" or "bi awakening" film, due to an attractive cast of main characters. I wish I could live in the same realm of blissful ignorance as these people, but it is not to be. Any potential eye-candy moments are wrecked by the constant reminder of how much racism the films contain. The anti-Arab sentiment is nauseatingly constant through the first two, and possibly only absent from the final only by virtue of taking place in China.
 
 __The Scorpion King__
-
-Here, we see the return of the names Imhotep and Ankh-su-namun, 
+A direct-to-DVD series inspired by the Rock's CGI girtablullû appearance in *The Mummy Returns*, although he only stars as the titular character in the first one (with the series having four actor changes in five movies). Their content would be
 
 ## Nobody's Favorite: Dark Universe
 **Includes: *The Mummy (2017)***
